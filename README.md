@@ -1,1 +1,1 @@
-update due 300,000 blocks, see: bdsm-fetish.net
+690,000 Fetish total money
